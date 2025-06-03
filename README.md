@@ -1,6 +1,6 @@
-【吃瓜网】更新时间：2025年06月02日
+【吃瓜网】更新时间：2025年06月03日
 
-吃瓜网大陆入口  https://cgwang35.com/
+吃瓜网大陆入口  https://cgwang41.com/
 
 吃瓜网App地址  https://cgwapp.xsmeutz.xyz
 
