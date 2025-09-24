@@ -2,7 +2,7 @@
 
 吃瓜网大陆入口  https://cgwang83.com/
 
-吃瓜网App地址  https://cgwapp.xsmeutz.xyz
+吃瓜网App地址  https://cgwapp.wjtlnyn.xyz
 
 吃瓜网永久主页  https://cgw321.com
 
